@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @Jimbuzas
-- 🌱 I’m currently getting head in your moms bedroom
-- 📫 How to reach me Discord: J1mbo#5704
+
+currently smookin on some tooka
 
 <!---
 Jimbuzas/Jimbuzas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
