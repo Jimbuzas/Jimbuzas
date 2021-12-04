@@ -1,5 +1,5 @@
 
-currently smookin on some tooka
+currently smookin on some tooka with my niggas
 
 <!---
 Jimbuzas/Jimbuzas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
